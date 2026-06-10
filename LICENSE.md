@@ -1,4 +1,4 @@
-# 
+# Elite market making bot templates for Mac OS | Exclusive market making bot templates for PC Windows. Featuring mev protection and yield farming — optimized for maximum performance on every platform.
 
 
 
